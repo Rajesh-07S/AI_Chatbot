@@ -1,4 +1,4 @@
-## ![AurizonAlf23GIF](https://github.com/user-attachments/assets/ab87f929-ce23-4d7f-95df-524c405eb796) ![IWannaComplainIWantToComplainGIF](https://github.com/user-attachments/assets/34555dba-7479-41fe-8e3d-f653f9c1da65)
+## ![AurizonAlf23GIF](https://github.com/user-attachments/assets/ab87f929-ce23-4d7f-95df-524c405eb796) 
 
 
 
